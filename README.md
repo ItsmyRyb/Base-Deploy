@@ -1,1 +1,1 @@
-100-commits
+Complete the tasks to qualify for potential Base airdrops and rewards. Follow step-by-step instructions and track task updates and statuses to become one of the potential recipients of the Base Airdrop.
